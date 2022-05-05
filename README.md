@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Justyna
+- 👀 I’m interested in finding new IT-stars!
+- 🌱 I’m currently learning about "IT world"
+- 💞️ I’m looking to collaborate on new projects and new possibilities
+- 📫 How to reach me justyna.hajnus-kordala@b3group.pl
